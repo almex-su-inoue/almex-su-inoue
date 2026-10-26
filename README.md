@@ -37,4 +37,4 @@ Driving R&D modernization, collaborative engineering architecture, and the devel
 
 I enjoy exchanging ideas on engineering leadership, scalable enterprise technology, AI systems, and the commercialization of advanced technologies.
 
-[LinkedIn](https://jp.linkedin.com/in/susumu-inoue-b30894162)
+[LinkedIn](https://www.linkedin.com/in/su-inoue/)
